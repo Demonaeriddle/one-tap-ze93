@@ -1,4 +1,4 @@
-#  
+#  one tap vip Script is the best one tap Script, featuring instant win and auto-sell. Safe and powerful for all your needs.
 
 
 
